@@ -2,3 +2,5 @@
 👷
 
 🌱 *I’m currently learning*
+
+🚫~~CPA~~
