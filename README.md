@@ -3,4 +3,4 @@
 
 🌱 *I’m currently learning*
 
-🚫~~CPA~~
+🚫~~CPA life~~
